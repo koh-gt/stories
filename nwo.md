@@ -106,14 +106,21 @@ This split led to China’s imposition of a blockade on commercial vessels passi
 
 Cyber Attacks and Economic Warfare
 
-The escalation of cyber warfare and economic aggression contributed to the rising hostilities:
+A devastating cyber attack on Japan’s critical infrastructure, traced back to Chinese state-sponsored hackers, crippled essential services and caused widespread disruption as well as a collapse in the Nikkei. 
 
-Major Cyber Attack: A devastating cyber attack on Japan’s critical infrastructure, traced back to Chinese state-sponsored hackers, crippled essential services and caused widespread disruption as well as a collapse in the Nikkei. This attack was interpreted as an act of war by Japan and its allies.
-    Economic Sanctions and Retaliation: The US and Japan imposed severe economic sanctions on China in response to its aggressive actions. China retaliated with its own set of sanctions, leading to a full-blown economic war that further strained relations and pushed the parties toward military confrontation.
-Multiple rounds of diplomatic negotiations and attempts at mediation by international organizations failed to produce a peaceful resolution. The intransigence of both sides and their unwillingness to compromise exacerbated the situation.
-    Domestic Political Pressures: Rising nationalism and political pressures within the US and Japan compelled their governments to adopt a hardline stance against China. Leaders used the external threat to bolster domestic support, further escalating the conflict.
-Article V of the US-Japan Security Treaty obligates the US to defend Japan in case of an armed attack. As China’s actions increasingly threatened Japan’s security, the US was drawn into the conflict under its treaty obligations.
-    Joint Military Exercises: The US and Japan conducted joint military exercises in response to Chinese aggression, demonstrating their readiness to defend against any threats. These exercises were perceived by China as provocative and escalatory, leading to a cycle of retaliation.
+This attack was interpreted as an act of war by Japan and its allies.
+The US and Japan imposed severe economic sanctions on China in response to its aggressive actions. China retaliated with its own set of sanctions, leading to a full-blown economic war that further strained relations and pushed the parties toward military confrontation.
+Multiple rounds of diplomatic negotiations and attempts at mediation by international organizations failed to produce a peaceful resolution. 
+The intransigence of both sides and their unwillingness to compromise exacerbated the situation.
+
+Political pressures within the US and Japan compelled their governments to adopt a hardline stance against China. 
+Leaders used the external threat to bolster domestic political support, further escalating the conflict and polarising views of the conflict.
+
+Article V of the US-Japan Security Treaty obligates the US to defend Japan in case of an armed attack.
+As China’s actions increasingly threatened Japan’s security, the US was drawn into the conflict under its treaty obligations.
+
+The US and Japan conducted joint military exercises in response to Chinese aggression, demonstrating their readiness to defend against any threats. 
+These exercises were perceived by China as provocative and escalatory, leading to a cycle of retaliation.
 
 #### The Aftermath and New World Order
 
